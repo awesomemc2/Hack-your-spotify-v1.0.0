@@ -1,0 +1,2 @@
+# Hack-your-spotify-v1.0.0
+NEED SPOTIFY MEMBERSHIP YOUR ON THE RIGHT ONE ###HOW?
